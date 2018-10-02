@@ -1,1 +1,0 @@
-# badreddinecheriefabdellatif.github.io
